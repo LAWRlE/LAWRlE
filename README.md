@@ -1,2 +1,2 @@
 <p align= center>
-test
+this page is still roughly a wip , please check my main for info in the meantime .
