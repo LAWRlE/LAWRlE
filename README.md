@@ -1,3 +1,7 @@
+<div align= center>
+  
+# SAY HELLO TO THE BAD COP !
+
 <img width="1125" height="720" alt="lawree" src="https://github.com/user-attachments/assets/95cc2942-fb0d-4c04-aad0-5b4c07b86e11" />
 
 <div align= center>
@@ -19,3 +23,4 @@
 > <p>I am multifandom, but my current main interests are Brawl Stars, Monster School, and MCYT.</p>
 > <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely.</p>
 > <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
+> <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
