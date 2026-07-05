@@ -3,3 +3,7 @@
 <div align= center>
   
 # ABOUT ME
+
+<pc align= center>
+  
+> I'm witherhalo, mainly known as wither. I don't mind if you call me Lawrie, halo, or Skye. Nicknames are welcome aswell!
