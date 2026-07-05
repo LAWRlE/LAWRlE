@@ -24,6 +24,7 @@
 > <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely.</p>
 > <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
 > <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
+> <p>I go by witherhalo on all apps and sites.</p>
 
 <div align= center>
   
@@ -38,6 +39,7 @@
   <p>The busy status does not mean anything, always feel free to interact unless stated otherwise.</p>
   <p>I love matching ponies! Don't be afraid to ask to match if you're my friend <3</p>
   <p>I don't mind Lawrie ponies sitting with me when I'm using my Skye pony!</p>
+  <p>Do not copy or take inspo off my ponies please.</p>
 </details>
 
 <details>
@@ -56,6 +58,9 @@
   <p>I am very socially awkward so interacting first is very appreciated!</p>
   <p>I am an overthinker.</p>
   <p>I frequently make references to my favorite media, plus a few vocal stims.</p>
-
-  
 </details>
+
+<details>
+ <summary>DNI <img width="29" height="30" alt="image" src="https://github.com/user-attachments/assets/08eee208-86f0-49f3-a2e2-a772ebd33644" /></summary>
+
+ 
