@@ -62,5 +62,14 @@
 
 <details>
  <summary>DNI <img width="29" height="30" alt="image" src="https://github.com/user-attachments/assets/08eee208-86f0-49f3-a2e2-a772ebd33644" /></summary>
+  
+ [Basic DNI Criteria.](https://basic-dni.crd.co/) </p>
+ <p>LLcest shippers or tolerators.</p>
+ <p>Vivziepop supporters.</p>
+ <p>Toxic yumeshippers/fictkins.</p>
+ <p>I'm not all too strict, I block/ignore freely.</p>
+ <img width="279" height="254" alt="image" src="https://github.com/user-attachments/assets/3d021bd1-1951-41ca-92c0-c4670b42f641" />
+ </details>
+
 
  
