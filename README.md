@@ -55,5 +55,7 @@
   <p>I tend to cling to/interact frequently with people I want to befriend or get closer to.</p>
   <p>I am very socially awkward so interacting first is very appreciated!</p>
   <p>I am an overthinker.</p>
+  <p>I frequently make references to my favorite media, plus a few vocal stims.</p>
+
   
 </details>
