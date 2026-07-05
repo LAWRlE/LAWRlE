@@ -13,3 +13,5 @@
 > <p>I am a fictkin and factkin, aswell as an INFP</p>
 > <p>I am a NON-SHARING Lawrie yumeshipper. Please kindly DNI if you're a double.</p>
 > <p>I am multifandom, but my current main interests are Brawl Stars, Monster School, and MCYT.</p>
+> <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely.</p>
+> <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
