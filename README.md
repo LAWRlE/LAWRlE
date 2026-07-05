@@ -6,7 +6,8 @@
 
 <div align= center>
   
-<small>*This page is used for my Brawl Stars Ponytown cosplays.*</small>
+<small>*This page is used for my Brawl Stars Ponytown cosplays.*</small></br>
+<small>*Sign atabook+strawpage!*</small></br>
 
 <div align= center>
   
