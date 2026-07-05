@@ -24,3 +24,11 @@
 > <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely.</p>
 > <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
 > <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
+
+<div align= center>
+  
+# ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+<details>
+ <summary>PONY TOWN <img width="32" height="30" alt="image" src="https://github.com/user-attachments/assets/bf4740c4-1399-4d0c-b531-ad6f6a41c1e1" /></summary>
+</details>
