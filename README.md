@@ -64,7 +64,8 @@
 <details>
  <summary>DNI <img width="29" height="30" alt="image" src="https://github.com/user-attachments/assets/08eee208-86f0-49f3-a2e2-a772ebd33644" /></summary>
   
- [Basic DNI Criteria.](https://basic-dni.crd.co/) </p>
+ [Basic DNI Criteria.](https://dni-criteria.carrd.co/) </p>
+ <p>Pro/Darkshippers.</p>
  <p>LLcest shippers or tolerators.</p>
  <p>Vivziepop supporters.</p>
  <p>Toxic yumeshippers/fictkins.</p>
