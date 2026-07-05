@@ -31,4 +31,7 @@
 
 <details>
  <summary>PONY TOWN <img width="32" height="30" alt="image" src="https://github.com/user-attachments/assets/bf4740c4-1399-4d0c-b531-ad6f6a41c1e1" /></summary>
+  <p>I am mostly Offtab/AFK so please w2i, and even then please expect slow/late responses.</p>
+  <p>I am usually at the Brawl Stars area with my friends/party and occasionally outside the Bakery.</p>
+  <p></p>
 </details>
