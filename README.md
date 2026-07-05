@@ -15,7 +15,7 @@
 
 <pc align= center>
   
-> <p>I'm witherhalo, mainly known as wither. I don't mind if you call me Lawrie, halo, or Skye. Nicknames are welcome aswell!</p>
+> <p>I'm witherhalo, mainly known as wither. I don't mind if you call me Lawrie, halo, Skye, or the name of the pony I am currently using. Nicknames are welcome aswell!</p>
 > <p>I am a minor, +18 IWCUF.</p>
 > <p>Gay, Genderfluid, and Aromantic + Nebularomantic, Cupioromantic, and Panplatonic</p>
 > <p>I go by He/Any + Bone/Bone's and Wolf/Wolf's/Wolves. But asking is appreciated aswell</p>
