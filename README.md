@@ -2,6 +2,10 @@
 
 <div align= center>
   
+<small>*This page is used for my Brawl Stars Ponytown cosplays.*</small>
+
+<div align= center>
+  
 # ABOUT ME
 
 <pc align= center>
