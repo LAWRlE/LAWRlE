@@ -38,7 +38,7 @@
   <p>I am usually at the Brawl Stars area with my friends/party and occasionally outside the Bakery.</p>
   <p>C+H heavily encouraged, even if not stated or with friends! I love cudpiles and cuds <3 C+H+K is welcome aswell.</p>
   <p>Do not cover my pony at all if it's not for cuddle purposes, unless you're my friend.</p>
-  <p>I do not ship Lawrie with anyone else, ships DNI whenever I'm using my Lawrie skin.</p>
+  <p>I do not ship Lawrie with anyone else, ships DNI whenever I'm using my Lawrie skin. (unless friend or as a joke, and even then please IWEC)</p>
   <p>My status does not mean anything, always feel free to interact unless stated otherwise.</p>
   <p>I love matching ponies! Don't be afraid to ask to match if you're my friend <3</p>
   <p>I don't mind Lawrie ponies sitting with me when I'm using my Skye pony!</p>
