@@ -30,7 +30,9 @@
 > <p>I go by witherhalo on all apps and sites.</p>
 
 <div align= center>
-  
+
+<img width="118" height="154" alt="pony-town-Gemini Lawrie - BS COS - F_O-dance move 1-padded-1x" src="https://github.com/user-attachments/assets/8a1cf2c4-d20f-4e90-a1f2-63d4ace77571" />  
+
 # ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 <details>
