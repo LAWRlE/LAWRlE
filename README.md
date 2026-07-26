@@ -2,6 +2,11 @@
   <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=f97509&center=true&vCenter=true&repeat=true&width=700&lines=SAY+HELLO+TO+THE+BAD+COP!;I+got+no+time+for+trouble!;Obey!;The+law+will+find+you.;You+will+pay+for+your+insubordination.;You+have+broken+the+law!;Time+for+some+real+action!;SAY+HELLO+TO+THE+BAD+GENIE!;I+do+not+bargain!;The+dunes+of+destiny+will+seal+your+fate!;You+shall+pay+For+defying+order!;Enough+ceremony,+judgement+begins.;Your+fate+is+written+in+the+sand!" />
 </p>
 
+<div align= center>
+  
+<img width="120" height="120" alt="pony-town-M-L Lawrie - BS COS - F_O-dance-lie-padded-10x" src="https://github.com/user-attachments/assets/59cf71fa-3f25-4480-91f7-1d255026f082" />
+
+
 <img width="1125" height="720" alt="lawree" src="https://github.com/user-attachments/assets/95cc2942-fb0d-4c04-aad0-5b4c07b86e11" />
 
 <div align= center>
@@ -31,7 +36,8 @@
 
 <div align= center>
 
-<img width="118" height="154" alt="pony-town-Gemini Lawrie - BS COS - F_O-dance move 1-padded-1x" src="https://github.com/user-attachments/assets/8a1cf2c4-d20f-4e90-a1f2-63d4ace77571" />  
+<img width="110" height="160" alt="pony-town-Gemini Lawrie - BS COS - F_O-dance move 1-padded-10x" src="https://github.com/user-attachments/assets/e9595bad-21de-41c6-9255-896c0857dba9" />
+ 
 
 # ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
