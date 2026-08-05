@@ -79,6 +79,7 @@
  [Basic DNI Criteria.](https://dni-criteria.carrd.co/) </p>
  <p>Pro/Darkshippers.</p>
  <p>LLcest shippers or tolerators.</p>
+ <p>Puppylawrie. leave me and my party alone holy bruh</p>
  <p>Vivziepop supporters.</p>
  <p>Toxic yumeshippers/fictkins.</p>
  <p>RPF yumeshippers/Boundary Breakers.</p>
