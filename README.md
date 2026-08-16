@@ -16,7 +16,6 @@
 
 <div align= center>
 
-# Due to recent events , please DNIUID/IWEC when you see me around the BS area.
 # ABOUT ME
 
 <pc align= center>
