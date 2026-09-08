@@ -86,5 +86,11 @@
  <img width="279" height="254" alt="image" src="https://github.com/user-attachments/assets/3d021bd1-1951-41ca-92c0-c4670b42f641" />
  </details>
 
-
+<p>
+<a href="https://github.com/pt-hall-of-media">PT Hall of media</a>
+<a href="https://github.com/pt-walk-of-fame">PT Walk of fame</a>
+<a href="https://github.com/pt-fashion">PT Fashion</a>
+<a href="https://github.com/title-town">Title-town</a>
+<a href="https://github.com/Ponytowns-rewards">Ponytown's Rewards</a> 
+</p>
  
