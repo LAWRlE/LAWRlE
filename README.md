@@ -45,7 +45,7 @@
  <summary>PONY TOWN <img width="32" height="30" alt="image" src="https://github.com/user-attachments/assets/bf4740c4-1399-4d0c-b531-ad6f6a41c1e1" /></summary>
   <p>I am mostly Offtab/AFK and sometimes have public chat bubbles OFF, so please w2i. And even then please expect slow/late responses.</p>
   <p>I am usually at the Brawl Stars area with my friends/party and occasionally outside the Bakery.</p>
-  <p>C+H heavily encouraged, even if not stated or with friends! I love cudpiles and cuds <3 C+H+K is welcome aswell.</p>
+  <p>C+H heavily encouraged, even if not stated! I love cudpiles and cuds <3 but do ask if I'm with friends. C+H+K is welcome aswell.</p>
   <p>Do not cover my pony at all if it's not for cuddle purposes, unless you're my friend.</p>
   <p>I do not ship Lawrie with anyone else, ships DNI whenever I'm using my Lawrie skin, ESPECIALLY melolawrie i will jump you. (unless friend or as a joke, and even then please IWEC.)</p>
   <p>My status does not mean anything, always feel free to interact unless stated otherwise.</p>
