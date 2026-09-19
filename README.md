@@ -36,7 +36,8 @@
 
 <div align= center>
 
-<img width="110" height="160" alt="pony-town-Gemini Lawrie - BS COS - F_O-dance move 1-padded-10x" src="https://github.com/user-attachments/assets/e9595bad-21de-41c6-9255-896c0857dba9" />
+<img width="100" height="150" alt="pony-town-Angel Lawrie - BS COS - F_O-dance-1-a-padded-ponyplush-10x" src="https://github.com/user-attachments/assets/593e0adf-e93e-4445-8956-4e1033ffdf95" />
+
  
 
 # ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
