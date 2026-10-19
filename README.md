@@ -92,6 +92,7 @@
 <a href="https://github.com/pt-walk-of-fame">PT Walk of fame</a>
 <a href="https://github.com/pt-fashion">PT Fashion</a>
 <a href="https://github.com/title-town">Title-town</a>
-<a href="https://github.com/Ponytowns-rewards">Ponytown's Rewards</a> 
+<a href="https://github.com/Ponytowns-rewards">Ponytown's Rewards</a>
+<a href="https://github.com/pt-ship-nominations">Pt ship nominations</a>
 </p>
  
