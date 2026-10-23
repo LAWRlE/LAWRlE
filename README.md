@@ -83,6 +83,8 @@
  <p>Vivziepop supporters.</p>
  <p>Toxic yumeshippers/fictkins.</p>
  <p>RPF yumeshippers/Boundary Breakers.</p>
+ <p>Law-T. sorry im really uncomf w this ship</p>
+ <p>R-T fans/cosplays IWECUF due to past experiences.</p>
  <p>I'm not all too strict, I block/ignore freely.</p>
  <img width="279" height="254" alt="image" src="https://github.com/user-attachments/assets/3d021bd1-1951-41ca-92c0-c4670b42f641" />
  </details>
