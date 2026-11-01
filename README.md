@@ -32,6 +32,7 @@
 > <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
 > <p>I lovee my friends <3/plat i love making friends too dont be afraid to int!! ^^</p>
 > <p>I'll occassionally folback people I think are kewl so watchout for that! ^^</p>
+> <p>Nominate me as ponytown's Lawrie on a nomination acc and I will love you forever</p>
 > <p>I go by witherhalo on all apps and sites.</p>
 
 <div align= center>
