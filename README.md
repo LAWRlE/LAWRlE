@@ -99,5 +99,6 @@
 <a href="https://github.com/Ponytowns-rewards">Ponytown's Rewards</a>
 <a href="https://github.com/pt-ship-nominations">Pt ship nominations</a>
 <a href="https://github.com/pt-everypony">Pt Everypony</a>
+<a href="https://github.com/piddlesjet">Piddlesjet</a>
 </p>
  
