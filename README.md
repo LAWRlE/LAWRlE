@@ -30,10 +30,9 @@
 > <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely.</p>
 > <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
 > <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
-> <p>I lovee my friends <3/plat i love making friends too dont be afraid to int!! ^^</p>
-> <p>I'll occassionally folback people I think are kewl so watchout for that! ^^</p>
-> <p>Nominate me as ponytown's Lawrie on a nomination acc and I will love you forever</p>
-> <p>Gift me Lawrie/Skye ponies and I'll kiss you on the lips(/nsrs)</p>
+> <p>I lovee my friends <3/plat i love making friends too dont be afraid to int ^^</p>
+> <p>Nominate me as ponytown's Lawrie on a nomination acc and I will love you forever.</p>
+> <p>Gift me Lawrie/Skye ponies and I'll kiss you on the lips.(/nsrs)</p>
 > <p>I go by witherhalo on all apps and sites.</p>
 
 <div align= center>
